@@ -19,3 +19,4 @@ _Любимые цвета_
 _Домашние животные_ 
 
 2 кота
+![photo_5418271410964515628_y](https://github.com/svetlandinho/GitHub-pages/assets/142608156/75431907-dd23-4aa8-9d97-59a2b300cc5e)
